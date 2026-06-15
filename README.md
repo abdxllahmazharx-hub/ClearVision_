@@ -1,1 +1,6 @@
-# ClearVision_
+👋 Hi, I'm Abdullah (@ClearVision_)
+📝Learning C++, Qt and.... :p 
+👥 Need Team Work for Projects...
+👋 Hi, I'm Abdullah (@ClearVision_)
+📝Learning C++, Qt and.... :p 
+👥 Need Team Work for Projects...
